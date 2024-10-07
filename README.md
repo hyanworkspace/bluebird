@@ -19,4 +19,4 @@
 
 > When they choose to share their happiness with others, they discover a deeper sense of peace and fulfillment within themselves. Along this path of exploration, the children not only witness the transformations of dreams but also experience the profound connections between souls.
 
-希望这里有不同背景的大家可以分享自己的知识和想法，共创一些有意思的东西，鼓励每位创作者以心中之光去触碰他人，赋予创作以温度。希望大家如同这段 GPT 的描述一般，不仅目睹了理想的变幻，还体验到了灵魂之间深刻的联结。
+希望这里有不同背景的大家可以分享自己的知识和想法，共创一些有意思的东西。
